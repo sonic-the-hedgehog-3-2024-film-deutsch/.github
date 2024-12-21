@@ -4,9 +4,9 @@
 
 Ganzer Sonic the Hedgehog 3 Film Stream Deutsch 1080.HD, Sonic the Hedgehog 3 Film Stream, Ganzer Sonic the Hedgehog 3 Film Online Frei, Sonic the Hedgehog 3 Kostenlos, Ganzer Sonic the Hedgehog 3 Online Ansehen.
 
-[◉ 🎬 GANZER Film ONLINE 🎬 ◉](https://sixmedia.online/de/movie/939243/sonic-the-hedgehog-3.git)
+[◉ 🎬 GANZER Film ONLINE 🎬 ◉](https://mediaonestream.com/de/movie/939243/sonic-the-hedgehog-3.git)
 
-[◉ 🎬 GANZER Film ONLINE 🎬 ◉](https://sixmedia.online/de/movie/939243/sonic-the-hedgehog-3.git)
+[◉ 🎬 GANZER Film ONLINE 🎬 ◉](https://mediaonestream.com/de/movie/939243/sonic-the-hedgehog-3.git)
 
 Netflix Sonic the Hedgehog 3 (2024)
 
